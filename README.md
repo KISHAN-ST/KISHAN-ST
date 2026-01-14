@@ -31,7 +31,7 @@
 
 ## 📫 Connect With Me
 - GitHub: https://github.com/KISHAN-ST
-- LinkedIn: *(add when ready)*
+- LinkedIn: https://www.linkedin.com/in/kishan-s-t-b5a726314/
 
 ---
 
